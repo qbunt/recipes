@@ -1,6 +1,8 @@
 # Easy Pancakes
 From [America's Test Kitchen](https://www.americastestkitchen.com/recipes/10906-easy-pancakes?sqn=uULiLjcpsjR/qQvVWD4/QQy2qFJi7dHrTJhPQP7CTIg=%0A&extcode=NSCIE03IG&utm_source=instagram&utm_medium=photo&utm_content=easypancakes&utm_campaign=ciinstagram)
 
+*Makes sixteen 4-inch pancakes; 4 to 6*
+
 - 2 cups (10 ounces) all-purpose flour
 - 3 tablespoons sugar
 - 4 teaspoons baking powder
@@ -20,9 +22,9 @@ From [America's Test Kitchen](https://www.americastestkitchen.com/recipes/10906-
 ## Extend the Life of Leftover Pancakes
 If you’ve got leftover pancakes, don’t toss them. Use these simple tips to store and reheat them for another breakfast.
 
-How to Store: Place cooled pancakes in zipper-lock bag, separating them with pieces of waxed paper, parchment paper, or aluminum foil and pressing on bag to eliminate air pockets before sealing. Refrigerate for up to 3 days or freeze for up to 2 weeks.
+**How to Store:** Place cooled pancakes in zipper-lock bag, separating them with pieces of waxed paper, parchment paper, or aluminum foil and pressing on bag to eliminate air pockets before sealing. Refrigerate for up to 3 days or freeze for up to 2 weeks.
 
-How to Reheat: Place pancakes on rimmed baking sheet and heat in 325-degree oven (or toaster oven) until warmed through, 3 to 4 minutes if refrigerated and about 6 minutes if frozen.
+**How to Reheat:** Place pancakes on rimmed baking sheet and heat in 325-degree oven (or toaster oven) until warmed through, 3 to 4 minutes if refrigerated and about 6 minutes if frozen.
 
 ## Mixin strategy
 We don’t suggest stirring fruit, chocolate chips, or nuts directly into thick pancake batters, such as that for our Easy Pancakes. This will overmix the batter, compromising the pancakes’ height and texture. Instead, add items (cut into ½-inch pieces) immediately after portioning the batter into the skillet. The batter will partially surround the add-ins during cooking.
