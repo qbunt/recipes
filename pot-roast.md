@@ -1,5 +1,5 @@
 # Pot Roast
-From mom
+From Mom
 
 - 1 pot roast cut of beef
 - 2 large onions
